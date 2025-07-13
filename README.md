@@ -1,1 +1,1 @@
-A curious mind training models and myself.
+A curious mind, training models and myself.
